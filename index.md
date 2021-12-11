@@ -1,6 +1,6 @@
 
 
-## Fortunes Walk Capital
+## fortuneswalk Capital
 
 First save Ourselves - Then save the World
 
